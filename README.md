@@ -2,7 +2,8 @@
 👌💦 rosi写真爬虫
 
 #### preview
-![out_0](https://raw.githubusercontent.com/gutrse3321/rosi-girl/master/out_0.png)<br/>
+![out_0](https://raw.githubusercontent.com/gutrse3321/rosi-girl/master/out_0.mp4
+)<br/>
 ![out_1](https://raw.githubusercontent.com/gutrse3321/rosi-girl/master/out_1.png)
 
 #### notice
